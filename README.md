@@ -9,3 +9,7 @@
 - Mi proyecto de fin de curso es [SolarLink](https://www.instagram.com/solarlink.ar/)<br>
 
 ### 🌖 ~ 🌗 ~ 🌘 ~ 🌑 ~ 🌒 ~ 🌓 ~ 🌔 ~ 🌕 ~ 🌖 ~ 🌗 ~ 🌘 ~ 🌑 ~ 🌒 ~ 🌓 ~ 🌔 ~ 🌕 ~ 🌖 ~ 🌗 ~ 🌘 ~ 🌑 ~ 🌒 ~ 🌓 ~ 🌔
+
+### Mis redes 📷
+- [Instagram](https://www.instagram.com/ivancenyko/)
+- [LinkedIn](https://www.linkedin.com/in/ivan-cenyko/)
