@@ -1,4 +1,4 @@
-## Hola 👋 Me llamo Iván!
+# Hola 👋 Me llamo Iván!
 
 ### Sobre mí!
 - Tengo 18 años y estudio en la EEST N°7 "IMPA TRQ" de Quilmes 🔧 Estoy en 7° 1° Av<br>
