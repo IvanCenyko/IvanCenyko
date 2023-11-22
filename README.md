@@ -9,6 +9,6 @@
 
 #### 🌖 ~ 🌗 ~ 🌘 ~ 🌑 ~ 🌒 ~ 🌓 ~ 🌔 ~ 🌕 ~ 🌖 ~ 🌗 ~ 🌘 ~ 🌑 ~ 🌒 ~ 🌓 ~ 🌔 ~ 🌕 ~ 🌖 ~ 🌗 ~ 🌘 ~ 🌑 ~ 🌒 ~ 🌓 ~ 🌔
 
-### Mis redes 📷
+### Contactos 📷
 - [Instagram](https://www.instagram.com/ivancenyko/)
 - [LinkedIn](https://www.linkedin.com/in/ivan-cenyko/)
